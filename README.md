@@ -43,6 +43,7 @@ Braun the Bat x Sonic the Hedgehog (Braunic)
 - They have a Neutral/Swim Chao named Booger.
 - Their fan kids are not considered canon to my main AU, and exist within an AU of said AU.
 - They call each other "Blue hair and pronouns" and "Fruit bat" respectively.
+- They are non-binary (they/them) and cis male respectively. Both are aro/gay, and Sonic is a trans ally!
 <br>
 <br>
 
