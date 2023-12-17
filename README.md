@@ -7,21 +7,6 @@
 <br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn. I may not respond if I don't know you and you come up to me and just say "hi", as that sort of thing makes me anxious. Also, as much as I enjoy hanging out with my friends, I may sometimes need some space or time to myself. I enjoy RPing, but please ask beforehand.
 <br>
 <br>
-<br>
-
-### Kins
-- Sonic the Hedgehog
-- Sunset Shimmer
-<br>
-
-### Comfort Ship
-Braun the Bat x Sonic the Hedgehog (Braunic)
-- They're so silly and not particularly romantic! Just like me and my own boyfriend!
-- They have a Neutral/Swim Chao named Booger.
-- Their fan kids are not considered canon to my main AU, and exist within an AU of said AU.
-- They call each other "Blue hair and pronouns" and "Fruit bat" respectively.
-<br>
-<br>
 
 ### Interests
 - Sonic the Hedgehog
@@ -33,7 +18,6 @@ Braun the Bat x Sonic the Hedgehog (Braunic)
 - Digimon
 - Pokemon
 <br>
-
 
 ### DNI/Boundaries/Triggers
 - Pedophiles
@@ -47,6 +31,18 @@ Braun the Bat x Sonic the Hedgehog (Braunic)
 - Sonamy RP (No thanks, plus my AU version of Sonic is in a relationship already.)
 - Jojo skins (It's triggering for me. If you're near me with one I'll temp hide you, unless it's a recurring thing, then it may be permanent.)
 <br>
+
+### Kins
+- Sonic the Hedgehog
+- Sunset Shimmer
+<br>
+
+### Comfort Ship
+Braun the Bat x Sonic the Hedgehog (Braunic)
+- They're so silly and not particularly romantic! Just like me and my own boyfriend!
+- They have a Neutral/Swim Chao named Booger.
+- Their fan kids are not considered canon to my main AU, and exist within an AU of said AU.
+- They call each other "Blue hair and pronouns" and "Fruit bat" respectively.
 <br>
 <br>
 
