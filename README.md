@@ -2,7 +2,7 @@
 <br>They/Them only
 <br>26
 <br>Aro/Gay(Taken)
-<br>utistic, ADHD, OCD
+<br>Autistic, ADHD, OCD
 <br>
 <br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn.
 <br>
@@ -17,7 +17,6 @@
 ### Comfort Ship
 Braun the Bat x Sonic the Hedgehog (Braunic)
 <br>
-
 <br>
 
 ### Interests
