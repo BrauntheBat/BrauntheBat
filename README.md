@@ -16,7 +16,10 @@
 
 ### Comfort Ship
 Braun the Bat x Sonic the Hedgehog (Braunic)
-<br>(They're so silly and not particularly romantic! Just like me and my own boyfriend!)
+- They're so silly and not particularly romantic! Just like me and my own boyfriend!
+- They have a Neutral/Swim Chao named Booger.
+- Their fan kids are not considered canon to my main AU, and exist within an AU of said AU.
+- They call each other "Blue hair and pronouns" and "Fruit bat" respectively.
 <br>
 <br>
 
