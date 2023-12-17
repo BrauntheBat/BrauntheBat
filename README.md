@@ -8,11 +8,15 @@
 <br>
 <br>
 
-###Hyperfixations
+### Kins
+- Sonic the Hedgehog
+- Sunset Shimmer
+<br>
+
+### Hyperfixations
 - Sonic the Hedgehog
 - Bats
 - Coffee
-<br>
 <br>
 
 ### Interests
@@ -41,10 +45,6 @@
 - Jojo skins (It's triggering for me. If you're near me with one I'll temp hide you, unless it's a recurring thing, then it may be permanent.)
 <br>
 
-### Kins
-- Sonic the Hedgehog
-- Sunset Shimmer
-<br>
 
 ### Comfort Ship
 Braun the Bat x Sonic the Hedgehog (Braunic)
