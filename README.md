@@ -16,6 +16,7 @@
 
 ### Comfort Ship
 Braun the Bat x Sonic the Hedgehog (Braunic)
+<br>(They're so silly and not particularly romantic! Just like me and my own boyfriend!)
 <br>
 <br>
 
