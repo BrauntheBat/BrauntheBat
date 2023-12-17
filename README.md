@@ -4,7 +4,7 @@
 <br>Aro/Gay(Taken)
 <br>Autistic, ADHD, OCD
 <br>
-<br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn.
+<br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn. I may not respond if I don't know you and you come up to me and just say "hi", as that sort of thing makes me anxious. Also, as much as I enjoy hanging out with my friends, I may sometimes need some space or time to myself. I enjoy RPing, but please ask beforehand.
 <br>
 <br>
 <br>
@@ -47,3 +47,4 @@ Braun the Bat x Sonic the Hedgehog (Braunic)
 <br>
 
 ![image](https://cdn.discordapp.com/attachments/1185754526465134602/1185754597969637457/Braun_the_Bat_com_2_KouD3x.png?ex=6590c306&is=657e4e06&hm=05f8b9696385eb660a0435355f28d8808a26d8b6591548c421b182dd4d34b365&)
+<br>If you've read all this, and respect my boundaries, thanks!
