@@ -9,7 +9,7 @@
 <p style></p>
 
 
-<p style><b>Kins</b></p>
+### Kins
 <p style>Sonic the Hedgehog</p>
 <p style>Sunset Shimmer</p>
 <p style></p>
@@ -17,14 +17,14 @@
 <p style></p>
 
 
-<p style><b>Comfort Ship</b></p>
+### Comfort Ship
 <p style>Braun the Bat x Sonic the Hedgehog (Braunic)</p>
 <p style></p>
 <p style></p>
 <p style></p>
 
 
-<p style><b>Interests</b></p>
+### Interests
 <p style>Sonic the Hedgehog</p>
 <p style>Freedom Planet</p>
 <p style>Spyro</p>
@@ -38,7 +38,7 @@
 <p style></p>
 
 
-<p style><b>DNI/Boundaries/Triggers</b></p>
+### DNI/Boundaries/Triggers
 <p style>Pedophiles</p>
 <p style>Zoophiles</p>
 <p style>Any and all forms of LGBTQ+phobic</p>
