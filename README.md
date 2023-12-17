@@ -8,6 +8,13 @@
 <br>
 <br>
 
+###Hyperfixations
+- Sonic the Hedgehog
+- Bats
+- Coffee
+<br>
+<br>
+
 ### Interests
 - Sonic the Hedgehog
 - Freedom Planet
@@ -17,6 +24,8 @@
 - Splatoon
 - Digimon
 - Pokemon
+- monsters
+- furries
 <br>
 
 ### DNI/Boundaries/Triggers
