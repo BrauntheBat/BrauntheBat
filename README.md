@@ -46,5 +46,10 @@ Braun the Bat x Sonic the Hedgehog (Braunic)
 <br>
 <br>
 
+### About my Sonic AU
+The timeline of the AU mirrors that of the real world, to where Sonic is as old as his franchise, and major characters and personal favorites from every facet of the franchise exist in one universe (excluding Ken Penders characters), with a few guest characters, and plenty of OCs and fan kids.
+<br>
+<br>
+
 ![image](https://cdn.discordapp.com/attachments/1185754526465134602/1185754597969637457/Braun_the_Bat_com_2_KouD3x.png?ex=6590c306&is=657e4e06&hm=05f8b9696385eb660a0435355f28d8808a26d8b6591548c421b182dd4d34b365&)
 <br>If you've read all this, and respect my boundaries, thanks!
