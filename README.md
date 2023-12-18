@@ -4,7 +4,7 @@
 <br>Aro/Gay(Taken)
 <br>Autistic, ADHD, OCD
 <br>
-<br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn. I may not respond if I don't know you and you come up to me and just say "hi", as that sort of thing makes me anxious. Also, as much as I enjoy hanging out with my friends, I may sometimes need some space or time to myself. I enjoy RPing, but please ask beforehand.
+<br>If I make a typo or use a wrong word, and then correct myself, do NOT "correct" me or laugh. Unless I think my own mistake is funny. I won't get on your case about your spelling mistakes or grammar, I'd like the same respect in turn. I may not respond if I don't know you and you come up to me and just say "hi", as that sort of thing makes me anxious. (The same applies to whispers.) Also, as much as I enjoy hanging out with my friends, I may sometimes need some space or time to myself. I enjoy RPing, but please ask beforehand.
 <br>
 <br>
 
