@@ -28,6 +28,7 @@
 - Them's Fightin' Herds
 - Rivals of Aether
 - Lunistice
+- Hell Pie
 - Digimon
 - Animal Crossing
 - Neopets
