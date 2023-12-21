@@ -38,7 +38,7 @@
 - furries
 <br>
 
-### Complicated interets
+### Complicated Interests
 Due to mixed experiences, while I do like the following, I won't always want to talk about them. If I don't want to, please respect that.
 - Splatoon
 - Pokemon
