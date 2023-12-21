@@ -23,13 +23,20 @@
 - Sonic the Hedgehog
 - Freedom Planet
 - Spyro
+- Ratchet and Clank
 - MLP
+- Them's Fightin' Herds
+- Rivals of Aether
 - Animal Crossing
-- Splatoon
 - Digimon
-- Pokemon
 - monsters
 - furries
+<br>
+
+### Complicated interets
+Due to mixed experiences, while I do like the following, I won't always want to talk about them. If I don't want to, please respect that.
+- Splatoon
+- Pokemon
 <br>
 
 ### DNI/Boundaries/Triggers
