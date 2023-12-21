@@ -24,11 +24,16 @@
 - Freedom Planet
 - Spyro
 - Ratchet and Clank
-- MLP
+- Ty the Tasmanian Tiger
 - Them's Fightin' Herds
 - Rivals of Aether
-- Animal Crossing
+- Lunistice
 - Digimon
+- Animal Crossing
+- Neopets
+- Subeta
+- MLP
+- Monster High
 - monsters
 - furries
 <br>
