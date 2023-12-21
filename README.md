@@ -25,6 +25,9 @@
 - Spyro
 - Ratchet and Clank
 - Ty the Tasmanian Tiger
+- Klonoa
+- NiGHTS
+- Ristar
 - Them's Fightin' Herds
 - Rivals of Aether
 - Lunistice
